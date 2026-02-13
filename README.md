@@ -21,6 +21,6 @@ I specialize in:
 ## 🎓 Certification
 
 Professional Scrum Master™ I (PSM I) – Scrum.org
-Project Management Fundamentals -Googlr
+Project Management Fundamentals -Google
 People Leadership -Google 
 
